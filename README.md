@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @atgaming0093
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on discord bot
+- 📫 How to reach me mail - anshtyagi@atgaming0093.tk or support@atgaming0093.tk
